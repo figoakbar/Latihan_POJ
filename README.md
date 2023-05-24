@@ -1,2 +1,2 @@
 # Latihan_POJ
-Cie yang latihan
+Elle Fanning cantik bngt ges...
